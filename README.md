@@ -15,4 +15,4 @@ Matching rentry (above) by <a href="https://github.com/frailsoul">Marsbar</a>
 
 Kyle "Gaz" Garrick adorer + JawshBerdVinny
 
-I might sound "dry" but I do enjoy interaction and making new friends, I tend to not really notice awkward moments of silence through texts
+I might sound "dry" but I do enjoy interaction and making new mutuals, I tend to not really notice awkward moments of silence through texts

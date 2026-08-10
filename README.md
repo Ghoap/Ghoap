@@ -5,4 +5,4 @@ As they’re effectively on their own, they wonder who they can still trust, no 
 </p>
 
 
-I might sound "dry" but I do enjoy interaction and making new mutuals, I tend to not really notice awkward moments of silence through texts. Sit with me.
+I might sound "dry" but I do enjoy interaction and making new mutuals, I tend to not really notice awkward moments of silence through text. Sit with me.
